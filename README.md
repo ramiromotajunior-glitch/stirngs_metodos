@@ -1,0 +1,1 @@
+# stirngs_metodos
